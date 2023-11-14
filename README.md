@@ -1,0 +1,1 @@
+# tareo-inkatambo-tabla
